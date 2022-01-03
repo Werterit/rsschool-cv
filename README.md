@@ -1,1 +1,1 @@
-# rsschool-cv
+https://GITHUB-Werterit.github.io/rsschool-cv/cv
